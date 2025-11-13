@@ -1,1 +1,0 @@
-# aprizaaransyar.github.io
